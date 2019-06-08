@@ -75,5 +75,5 @@
 
 ### Sara Cashman: The Web and the World: The Next Billion Users and the Digital Gender Divide
 
-### Fabricio Nogueira Buzeto: The Error Of Our Ways - Continuous change by accepting failure	
+### [Fabricio Nogueira Buzeto: The Error Of Our Ways - Continuous change by accepting failure](http://bit.ly/selfconf2019)
  
